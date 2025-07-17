@@ -1,1 +1,0 @@
-# Video_Turistico_Guayaquilhb0me
